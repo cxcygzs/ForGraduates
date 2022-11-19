@@ -20,7 +20,7 @@
 与经验丰富的人合写一篇论文。接触一位拥有共同研究兴趣的教授，他会给你很多帮助，作为感谢，可以给他署名为论文的主要合作者。
 不要指望你的第一篇论文会令所有人刮目相看。许多知名人士都是从一件小作品开始的。通过在不太知名的期刊上发表一两篇简短而又有力的论文，然后再定位到主流期刊。
 将你的研究计划作为一份重要的综述论文发表。如果它可以发表，代表你可能已经选择了工作的正确方向。
-William Strunk和E. P. White合著的《The Elements of Style》[The Elements of Style](https://github.com/cxcygzs/ForGraduates/files/10047150/The.Elements.of.Style.4rd.Edition1992.pdf) [中文版](https://www.dedao.cn/ebook/detail?id=A1De6QkaNRMlK5yxrdmnEBXY97ZL23nGKvwo6zvGDekj1QgA84VbpqJOPLgxEJlY)
+William Strunk和E. P. White合著的[The Elements of Style](https://github.com/cxcygzs/ForGraduates/files/10047150/The.Elements.of.Style.4rd.Edition1992.pdf) [中文版](https://www.dedao.cn/ebook/detail?id=A1De6QkaNRMlK5yxrdmnEBXY97ZL23nGKvwo6zvGDekj1QgA84VbpqJOPLgxEJlY)
 。在坐下来写第一篇论文之前，先读一遍，然后在接下来的几年里，每年至少读一次。
 论文提交给期刊之前，让有时间对你的写作、想法和条理提出意见的人先对你的工作进行审查。
 
